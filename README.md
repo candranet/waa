@@ -1,2 +1,2 @@
 # SC-BOT-WA
-Subscribe Channel Hanbu FF
+Subscribe Chanel 🔰*BOT_CANDRA*
